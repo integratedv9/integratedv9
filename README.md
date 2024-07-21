@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @integratedv9
 - 👀 I’m interested in ...any issue 
-- 🌱 I’m currently learning ... multiple tast
+- 🌱 I’m currently learning ... multiple tasks 
 - 💞️ I’m looking to collaborate on ...any applicable 
 - 📫 How to reach me ...Goal to promote in peace and joy 
 - 😄 Pronouns: ...
